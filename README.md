@@ -1,3 +1,3 @@
 ## Alarme Remoto
 
-Aplicativo que vai ser da hora!
+Erika Maria Capote Both
